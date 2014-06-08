@@ -1,0 +1,1 @@
+Jag heter Grigoriy Ustinov och jag är 20 år gammal, jag kommer från Ryssland år 2007, år 2013 slutade jag Delagardie gymnasiet i Lidköping och direct börjat här på BTH. Ser fram emot att lära mig något nytt och börja göra riktig roliga websidor. 
